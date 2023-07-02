@@ -1,1 +1,1 @@
-na svyazi
+hii
